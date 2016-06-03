@@ -1,2 +1,4 @@
 # hello-world
 Everyone has to start somewhere... how about now?
+
+Hello I am 24 years old with a realistic view of the world. I spent most of my high school years playing video games, especially DotA on the Warcraft 3: The Frozen Throne. Well, I literally spent most of my time playing DotA haha... such a time to be alive. Unfortunately, I grew out of playing DotA but the competitveness is still there! My time is mostly spent on self-improvement, playing pick-up Basketball and listening to a bit of hip-hop here and there. Currently, I am using programming as an outlet for my creative side- something on the side while I continue working a full-time job. Anyways, I hope one day I will be someone where kids will look up to... but who am I kidding. Will continue living each day until I am 6 feet under (woot woot?).
